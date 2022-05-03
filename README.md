@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UXandre
-- 👀 I’m interested in RetailTech.
+- 👀 I’m interested in Future of Work | Workplace Innovation | Employee Expereince
 - 🌱 I’m currently working on 2 startup ideas.
 - 💞️ I’m looking to collaborate with talented developers who are up for SaaS side projects.
 - 📫 How to reach me andre@uxandre.com
